@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Social-Change-Nest
+- 👀 I’m interested in Social Innovation & Impact, movements, grassroots organisations, communities
+- 💞️ I’m looking to collaborate on projects with Open Collective and to do with Fiscal Hosting
+- 📫 How to reach me hello@thesocialchangenest.org
